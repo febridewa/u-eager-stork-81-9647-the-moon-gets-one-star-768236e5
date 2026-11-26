@@ -18,7 +18,7 @@ takes the $2 reward (winner takes all).
 Why this line: the grievance is the Moon's own behaviour — it disappears for
 three days every month (new moon) with no warning, then returns acting like
 nothing happened. The punchline is a double meaning only the Moon can carry:
-it comes back "full of itself" — a full moon, and arrogant about it. 93
+it comes back "full of itself" — a full moon, and arrogant about it. 92
 characters, no craters, no cheese, no brightness jokes, and a complaint a
 genuine reviewer would leave.
 
